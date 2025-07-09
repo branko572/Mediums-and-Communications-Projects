@@ -1,1 +1,1 @@
-# MIK-Proekt-za-Informatika
+# Mediums and Communications Projects
